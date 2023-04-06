@@ -1,3 +1,3 @@
 # Tarixiy-Obidalar
-Assalomu Alaykum
+Assalomu alaykum.
 Bu ilova Buxorodagi 7 pir ziyoratgohlari haqida
